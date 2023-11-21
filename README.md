@@ -18,6 +18,7 @@ A passionate guy from Mongolia in Germany.
 
 📫 How to reach me through Github
 
+
 💬 Ask me about anything
 
 🤝 I’m looking for help with startup
